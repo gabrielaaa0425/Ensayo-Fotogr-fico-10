@@ -1,1 +1,1 @@
-# Ensayo-Fotogr-fico-10
+# Ensayo-Fotográfico-10
